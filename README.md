@@ -1,4 +1,4 @@
-- 👋 Hi, I’m <strong>@zezimdas9vinha*</strong>
+- 👋 Hi, I’m <u>@zezimdas9vinha*</u>
 - 👀 I’m interested in turning the world a better place through policy!
 - 🌱 I’m currently learning how environment affects people and their decisions/thoughts
 - 💞️ I’m looking to collaborate on whatever it takes to achieve the state of 'forever youngness' and peace amongst the world
